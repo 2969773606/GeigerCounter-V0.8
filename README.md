@@ -6,4 +6,4 @@ It could be applied in a lot of fun projects, which has connnection with nuclear
 ![GergerCounter-v0 8](https://github.com/2969773606/GeigerCounter-V0.8/assets/30722223/6abd48e5-9e4b-4f24-880d-ccce4c51db49)
 
 GergerCounter-v0.8-with Acrylic dust cover 
-![Uploading GergerCounter-v0.8-with Acrylic dust cover .jpg…]()
+![GergerCounter-v0 8-with Acrylic dust cover ](https://github.com/2969773606/GeigerCounter-V0.8/assets/30722223/98f68f5c-7510-4619-8f76-b820da01af83)
